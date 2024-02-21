@@ -8,4 +8,4 @@
 
 ### Низкая цена 
 
-#### ![alt text](image.png)
+#### ![NeuroStartUp](!mage.png)
